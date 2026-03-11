@@ -111,3 +111,4 @@ Eastern Mediterranean University
 
 > “Çalışmadan, yorulmadan, öğrenmeden rahat yaşamak isteyenler; ne toplum içinde, ne de kendi hayatında başarılı olabilirler.”
 > — Mustafa Kemal Atatürk
+
